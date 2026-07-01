@@ -1,1 +1,0 @@
-# nyzuopinji.github.io
